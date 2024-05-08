@@ -1,1 +1,1 @@
-# ClickFunnels-HOT-BEST-Deals-of-the-Day-Product
+## ClickFunnels HOT BEST Deals of the Day Product
